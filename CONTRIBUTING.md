@@ -1,1 +1,1 @@
-Contributors: Samuel Fye, Caroline Fye, Jakob Pirkl
+Contributors: Samuel Fye, Caroline Fye, Jakob Pirkl 
